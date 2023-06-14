@@ -1,1 +1,0 @@
-# twl2023_thoriqinmaulana
